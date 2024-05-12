@@ -1,0 +1,1 @@
+# Projeto_Imersao_GeminiAI_Alura
